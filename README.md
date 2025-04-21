@@ -1,0 +1,1 @@
+# tvku_kirdi_chiqdi
